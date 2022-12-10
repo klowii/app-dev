@@ -16,6 +16,7 @@ This series focuses on Meredith's emotions, struggles, and hectic schedules when
 Basically, this series revolves around the everyday lives of surgeons, diagnosing and treating their patients, how the physicians handle death of a patient and law suits filed against them, sometimes they set aside their medical ethics to save patients, and also how friendly and romamntic relationships with their patients and co-physicians affect their personal and professional lives.
 
 | Status: | Ongoing |
+| ----------- | ----------- |
 | Genre: | Medical Drama, Romance, Comedy |
 | Creator: | Shonda Rhimes |
 | First episode date: | March 27, 2005 |
